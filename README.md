@@ -22,4 +22,6 @@ https://games.odd.gay/play/subwaysurferssanfrancisco/
 
 https://tw31120071857.github.io/BCHS-Unblocked-Games-V2/Subway%20Surfers.html
 
+https://genarcy.github.io/Pages/games/Subway-Surfers/
+
 These are the only ones i have, but hopefully they work for you!
